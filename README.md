@@ -1,1 +1,1 @@
-https://lininajulia.github.io/rsschool-cv/
+https://luninajulia.github.io/rsschool-cv/
